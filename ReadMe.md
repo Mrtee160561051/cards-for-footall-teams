@@ -1,0 +1,1 @@
+This is an argentine footaball cards for each player
